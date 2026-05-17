@@ -1,10 +1,10 @@
-Ultra Seguro PIA Extensão | criptografia de ponta a ponta + servidores de alta velocidade é o melhor PIA extensão com criptografia de ponta a ponta e servidores de alta
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://foundtailorthink.github.io/private-internet-a-wi20/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
